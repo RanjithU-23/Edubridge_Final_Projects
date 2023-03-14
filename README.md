@@ -1,2 +1,3 @@
 # Edubridge_Final_Projects
-![image](https://user-images.githubusercontent.com/120709069/224886569-dd7b4af4-e9f6-4e99-a90f-1d82730120bb.png)
+![image](https://user-images.githubusercontent.com/120709069/224886853-fe2499d3-b6ba-4279-b67c-ec2a7aa1b237.png)
+
